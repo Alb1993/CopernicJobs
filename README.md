@@ -4,6 +4,7 @@
 
 ![copernicjobs1](https://github.com/user-attachments/assets/5370b575-0035-4a44-aab9-ead6ba705992)
 
+![copernicjobs3](https://github.com/user-attachments/assets/9afcef92-ebfd-47c5-8c25-e421517bbc06)
 
 
 ERP encargado de la bolsa de trabajo del instituto
