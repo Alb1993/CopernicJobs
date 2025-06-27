@@ -1,4 +1,7 @@
 # CopernicJobs
+![copernicjobs1](https://github.com/user-attachments/assets/5370b575-0035-4a44-aab9-ead6ba705992)
+
+
 
 ERP encargado de la bolsa de trabajo del instituto
 
