@@ -1,4 +1,7 @@
 # CopernicJobs
+
+![copernicjobs2](https://github.com/user-attachments/assets/839bf7fa-3e3d-4e8a-8dfb-8952b3d90ab2)
+
 ![copernicjobs1](https://github.com/user-attachments/assets/5370b575-0035-4a44-aab9-ead6ba705992)
 
 
